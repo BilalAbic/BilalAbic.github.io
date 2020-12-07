@@ -1,1 +1,1 @@
-# bilalabic-gmail.com
+# BU WEB SİTESİ YAKIN ZAMANDA KULANIMA SUNULACAK.
